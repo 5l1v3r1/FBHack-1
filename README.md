@@ -1,8 +1,11 @@
 # FBHAck (Dark FB)
 Dark FB Premier
 
-# TOOLS ANTI CHECKPOINT
+# LOGIN DI OPERA MINI DULU.
 
+
+
+# PEACE AND
 <br>▀██▀─▄███▄─▀██─██▀██▀▀█
 <br>─██─███─███─██─██─██▄█─
  <br>─██─▀██▄██▀─▀█▄█▀─██▀█─
